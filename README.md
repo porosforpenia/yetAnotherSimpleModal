@@ -1,1 +1,1 @@
-Hello, world!
+redeye is really not a good idea!
